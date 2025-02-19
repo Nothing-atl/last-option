@@ -1,3 +1,3 @@
 # last-option
 
-ask you valentine out!!
+ask your valentine out!!
